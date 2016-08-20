@@ -1,0 +1,1 @@
+# shinryaku.github.io
